@@ -12,7 +12,7 @@ Contact Us
 Because Your Pet Deserves the Best!
 Book an Appointment
 
-Photo by Monique Laats from Pexels: https://www.pexels.com/photo/brown-short-coated-cat-736532/
+https://www.pexels.com/photo/brown-short-coated-cat-736532/
 
 ------------------------------------------------------------------------------
 
@@ -39,7 +39,8 @@ From puppy training to obedience coaching.
 Book an Appointment Today!
 Schedule Now
 
-Photo by Anna Shvets from Pexels: https://www.pexels.com/photo/portrait-of-shiba-inu-dog-4587979/
+https://www.pexels.com/photo/portrait-of-shiba-inu-dog-4587979/
+
 ------------------------------------------------------------------------------
 
 ## Happy Pet Owners Say...
@@ -63,25 +64,25 @@ https://unsplash.com/photos/woman-wearing-sweater-while-cuddling-chihuahua-baKsN
 
 ## Follow Us on Instagram
 
-Photo by Artem  Korsakov  from Pexels: https://www.pexels.com/photo/woman-cutting-dogs-hair-12283472/
+https://www.pexels.com/photo/woman-cutting-dogs-hair-12283472/
 
-Photo by Lucas Pezeta from Pexels: https://www.pexels.com/photo/hand-of-a-woman-feeding-her-cat-16258935/
+https://www.pexels.com/photo/hand-of-a-woman-feeding-her-cat-16258935/
 
 https://unsplash.com/photos/a-person-washing-a-cat-cB1VVsFMkg8
 
-Photo by Goochie Poochie Grooming from Pexels: https://www.pexels.com/photo/a-dog-at-a-groomer-19145877/
+https://www.pexels.com/photo/a-dog-at-a-groomer-19145877/
 
-Photo by Tima Miroshnichenko from Pexels: https://www.pexels.com/photo/close-up-photo-of-bathing-of-dog-6131165/
+https://www.pexels.com/photo/close-up-photo-of-bathing-of-dog-6131165/
 
-Photo by nishizuka from Pexels: https://www.pexels.com/photo/brown-chihuahua-485294/
+https://www.pexels.com/photo/brown-chihuahua-485294/
 
 https://unsplash.com/photos/white-and-orange-cat-on-ground-NO55jI1tSJY
 
-Photo by Yuliya kota from Pexels: https://www.pexels.com/photo/cat-playing-with-a-pet-brush-3791591/
+https://www.pexels.com/photo/cat-playing-with-a-pet-brush-3791591/
 
 https://unsplash.com/photos/person-holding-white-and-brown-cat-f5FGa29BONU
 
-Photo by Gustavo Fring from Pexels: https://www.pexels.com/photo/woman-brushing-a-white-cat-in-a-vet-room-6816838/
+https://www.pexels.com/photo/woman-brushing-a-white-cat-in-a-vet-room-6816838/
 
 ------------------------------------------------------------------------------
 
@@ -111,9 +112,9 @@ Read more
 
 View All Blogs
 
-Photo by Anna Shvets from Pexels: https://www.pexels.com/photo/brown-short-coated-dog-wearing-pink-hair-cap-4588019/
+https://www.pexels.com/photo/brown-short-coated-dog-wearing-pink-hair-cap-4588019/
 
-Photo by Sam Lion from Pexels: https://www.pexels.com/photo/cute-healthy-yorkshire-terrier-with-nurse-cap-and-stethoscope-5731866/
+https://www.pexels.com/photo/cute-healthy-yorkshire-terrier-with-nurse-cap-and-stethoscope-5731866/
 
 https://unsplash.com/photos/tuxedo-cat-on-white-wall-mounted-shelf-JwTIclGB5nk
 
@@ -179,7 +180,7 @@ https://unsplash.com/photos/brown-tabby-cat-on-white-stairs-mJaD10XeD7w
 
 To offer exceptional pet care services that prioritize the health, happiness, and well-being of your pets while ensuring convenience and peace of mind for pet owners.
 
-Photo by Pixabay from Pexels: https://www.pexels.com/photo/long-coated-white-and-black-dog-220938/
+https://www.pexels.com/photo/long-coated-white-and-black-dog-220938/
 
 ------------------------------------------------------------------------------
 
@@ -230,7 +231,7 @@ Simple, Affordable, and Reliable Pet Care!
 
 At Pawfect Care, we offer convenient pet care packages designed to keep your furry friend happy, healthy, and well-groomed. Whether your pet needs a routine checkup, a fun daycare experience, or specialized training, we have the perfect package for them. Choose a plan that fits your pet’s needs and book an appointment today!
 
-Photo by Pixabay from Pexels: https://www.pexels.com/photo/grey-and-white-short-fur-cat-104827/
+https://www.pexels.com/photo/grey-and-white-short-fur-cat-104827/
 
 ------------------------------------------------------------------------------
 
